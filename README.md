@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+![](https://visitor-badge.laobi.icu/badge?page_id=jewel998.profile)
+
+I'm not so very talented,
+But I make it up with my hardwork.
+Hope you find something useful.
+
+## For queries:
+Contact: <a href="mailto:jewelbarman998@gmail.com">jewelbarman998@gmail.com</a>
 <!--
 **jewel998/jewel998** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
