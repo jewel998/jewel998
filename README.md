@@ -2,8 +2,8 @@
 
 ![](https://visitor-badge.laobi.icu/badge?page_id=jewel998.profile)
 
-I'm not so very talented,
-But I make it up with my hardwork.
+I'm not so very talented,\
+But I make it up with my hardwork.\
 Hope you find something useful.
 
 ## For queries:
