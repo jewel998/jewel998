@@ -3,7 +3,7 @@
 
 ![](https://visitor-badge.laobi.icu/badge?page_id=jewel998.profile)
 
-- 👨‍💻 All of my projects are available at [jewel998.github.io](jewel998.github.io)
+- 👨‍💻 All of my projects are available at [jewel998.github.io](https://jewel998.github.io)
 
 - 💬 Ask me about **tech, life, or sports**
 
